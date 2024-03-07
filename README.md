@@ -1,1 +1,1 @@
-# Season2024_01_Student_Computational_Thinging
+# Season2024_01_Student_Computational_Thinking
